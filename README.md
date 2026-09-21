@@ -228,4 +228,4 @@ Age of Mythology is offered as a complete free version with all features and upd
 Don't miss out on the opportunity to download Age of Mythology for free today! Unleash your strategic prowess and embark on an epic adventure filled with gods, heroes, and legendary battles!
 
 ---
-**Last updated:** 2026-09-21 19:04:19 UTC
+**Last updated:** 2026-09-21 23:00:27 UTC
